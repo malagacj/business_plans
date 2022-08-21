@@ -9,6 +9,7 @@ A place where the owners of the house could leave their stuff and come to back w
 
 A place for family reunions and for planning "new business" as well as a learning centre where we could share ideas, etc...
 
+
 ## Pros
 * Place for the elderly to live with high commodities and a garden
 * Allows them to rent their other houses
@@ -17,11 +18,14 @@ A place for family reunions and for planning "new business" as well as a learnin
 * Place for meetings among ourselves and other family members
 * Possibility to rent other parts of the house (If we wanted to) 
 * If the elderly pay, less money it will cost us
+* We could get up to 90% of the house (we were told)
+
 
 ## Cons
 * It is not Madrid, therefore lacking Metro and Bus facilities. Cars are needed
 * Perhaps harder to rent than other places, but we were told that renting in calypo is easy 
 * It doesn't have a swimming pool
+
 
 ## Why we need to do it soon
 * Interests are going up
@@ -31,4 +35,4 @@ A place for family reunions and for planning "new business" as well as a learnin
 
 ## Observations
 * House is a long term investment, therefore if in the future it needs to be sold we won't be in a hurry
-* There are many people saying that a recession is comming,
+* There are many people saying that a recession is comming, the chance of all of us not having a job during the recession is improbable
